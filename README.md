@@ -71,6 +71,8 @@
 ## Socials
 - @NekoKazukiSuzuki  
 - @NekoKazukiSuzukiUwU  
+- @KazukiSuzukiNeko  
+- @KazukiSuzukiNekoUwU  
 
 ---
 
