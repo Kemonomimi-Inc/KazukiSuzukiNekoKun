@@ -1,5 +1,7 @@
 # 和希鈴木猫少年くん Kazuki Suzuki Neko-kun 🇯🇵🐱 かずきすずきねこくん
 
+![](AiImages/ChatGPT%20Image%20Nov%2021%2C%202025%2C%2006_55_07%20PM.png?raw=true)
+
 ---
 
 ## English Romaji
